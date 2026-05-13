@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced geckoterminal sniper bot | auto-buy + stop-loss, the #1 geckoterminal sniper bot. Includes auto-buy and stop-loss for a faster and more
 
 
 
